@@ -1,0 +1,1 @@
+i didnt do the 2nd problem because i didn't get it. since im out of time i would rather lose half the mark than waste more time and not being able to finish the course on time. i will check it again after i finish the course.
